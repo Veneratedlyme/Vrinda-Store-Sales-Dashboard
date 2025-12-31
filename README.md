@@ -89,6 +89,6 @@ To sustain growth in 2023 and beyond:
 
 ## 💡 Author
 
-**Ajani Taiwo Dorcas**  
+**Oses Augustina**  
 📍 Data Analyst \| Excel Enthusiast \| Storyteller with Data  
 📧 [evenerated@gmail.com](mailto:evenerated@gmail.com)
